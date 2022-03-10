@@ -1,3 +1,2 @@
 ### Hi there 👋
-
-I'm Abbe. (:
+I'm Abby
